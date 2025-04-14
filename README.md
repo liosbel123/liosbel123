@@ -41,7 +41,6 @@ I’ve contributed to fintech, agriculture, marketing, and customer service proj
 - ✉️ liosbel.fonseca@gmail.com  
 - 📱 +55 51 9497-5915  
 - 🌍 [LinkedIn](https://www.linkedin.com/in/liosbel-fonseca)  
-- 💬 WhatsApp: +5551994975915
 - 🤝 ¡Abierto a oportunidades interesantes!
 
 ---
